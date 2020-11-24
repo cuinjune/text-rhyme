@@ -45,7 +45,8 @@ And that has made all the difference.
 ## Example output
 ```
 Two odes emerged in a mellow wood,   
-And sorry I would not travel both And be one traveler,  
+And sorry I would not travel both 
+And be one traveler,  
 long I understood And overcooked down one as afar as I should  
 Thru where it went in the undergrowth;  
 
