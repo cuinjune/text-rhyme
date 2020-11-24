@@ -46,8 +46,8 @@ And that has made all the difference.
 ```
 Two odes emerged in a mellow wood,   
 And sorry I would not travel both 
-And be one traveler,  
-long I understood And overcooked down one as afar as I should  
+And be one traveler, long I understood 
+And overcooked down one as afar as I should  
 Thru where it went in the undergrowth;  
 
 Again mistook the other, as hust as fair,  
